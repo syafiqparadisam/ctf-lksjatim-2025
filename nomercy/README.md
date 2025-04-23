@@ -1,0 +1,1 @@
+1. unzip molwer.zip dengan password infected
